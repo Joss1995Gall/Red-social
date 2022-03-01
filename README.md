@@ -1,4 +1,4 @@
 # Red-social
-![image text](![Uploading LogoMakr-15YPtQ.png…])
+![image text](https://github.com/Joss1995Gall/Red-social/blob/main/ropa%201.jpg)
 
 
